@@ -1,5 +1,5 @@
-## Olá sou kaique oliveira pereira
+## Olá, sou kaique oliveira pereira
 
-preguiça de escrever viu...
+finge que aqui tem uma bio legal
 
 
